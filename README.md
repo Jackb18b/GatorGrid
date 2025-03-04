@@ -6,7 +6,7 @@
 ## Johnathon Brown
 - 3/4/2025 (11:00 A.M. - )
 ## Mateo Slivka
-
+- 3/4/2025 (11:00 A.M. - )
 ## Cole Smith
 
 ## Maxwell Evans
