@@ -1,7 +1,7 @@
 # GatorGrid
 
 ## George Salomon
-- 3/4/2025 (11:00 A.M. - 4:30 P.M.)
+- 3/4/2025 (11:00 A.M. - 4:30 P.M.) and (8:15 P.M. -
 
 ## Jonathon Brown
 - 3/4/2025 (11:00 A.M. - 12:40)
