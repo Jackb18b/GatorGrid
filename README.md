@@ -5,6 +5,7 @@
 
 ## Jonathon Brown
 - 3/4/2025 (11:00 A.M. - 12:40)
+- 3/5/2024 (3:15 PM - )
 ## Mateo Slivka
 - 3/4/2025 (11:00 A.M. - 1:00 P.M.)
 ## Cole Smith
